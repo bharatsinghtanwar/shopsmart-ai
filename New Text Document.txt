@@ -1,0 +1,1 @@
+welcome to shop-smart ai
